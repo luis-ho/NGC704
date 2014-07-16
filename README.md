@@ -1,4 +1,4 @@
 NGC704
 ======
 
-Luis, Mingzhi, Song, Hua, Yulin&amp; Chu
+Luis, Zhiyu, Mingzhi, Song, Hua, Yulin&amp; Chu
